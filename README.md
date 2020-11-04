@@ -19,4 +19,4 @@
 
 <hr>
 
-![github stats](https://github-readme-stats.vercel.app/api?username=TaLHa4203&show_icons=true)
+![github stats](https://github-readme-stats.vercel.app/api?username=Cashew-Devs&show_icons=true)
