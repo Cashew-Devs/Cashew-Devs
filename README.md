@@ -15,7 +15,7 @@
 
 ## 💬 Contact Me!
 
-🎙&nbsp;&nbsp;My Discord: **Cashew#0009**<br>
+🎙&nbsp;&nbsp;My Discord: **Cnn.dll#6043**<br>
 
 <hr>
 
